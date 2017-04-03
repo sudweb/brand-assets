@@ -17,4 +17,4 @@ Si vous avez des questions, merci de nous envoyer au mail sur [contact@sudweb.fr
 * 2013 : [Corinne Sanchez](https://twitter.com/coc_san)
 * 2014 : [Corinne Sanchez](https://twitter.com/coc_san)
 * 2015 : [Pedro Vitorino](https://twitter.com/vitorinopedro)
-* 2016 : [Enza Chaffron](//twitter.com/zizae)
+* 2016 : [Enza Chaffron](https://twitter.com/zizae)
